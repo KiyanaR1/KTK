@@ -1,1 +1,1 @@
-# KTK
+# Kritik
